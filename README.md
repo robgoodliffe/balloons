@@ -2,6 +2,7 @@
 A curated list of awesome things relating to balloons!
 
 ## [Balloons UK](https://bonzaballoons.co.uk)
+Visit our [facebook page](https://www.facebook.com/Bonza-Balloons-241875609195176/)
 
 ## [Helium Hire](https://balloonhelium.co.uk)
 
@@ -12,3 +13,5 @@ A curated list of awesome things relating to balloons!
 ## [Balloons By Post](https://balloonsbypost.co.uk)
 
 ## [Balloon Printing](https://balloonprinting.co.uk)
+
+
