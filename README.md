@@ -13,5 +13,6 @@ Visit our [facebook page](https://www.facebook.com/Bonza-Balloons-24187560919517
 ## [Balloons By Post](https://balloonsbypost.co.uk)
 
 ## [Balloon Printing](https://balloonprinting.co.uk)
+Check out the [Instagram Balloon Printing](https://www.instagram.com/balloonprinting/) page for example of our work. 
 
 
